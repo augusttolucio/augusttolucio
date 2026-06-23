@@ -1,7 +1,1 @@
-adoro 🍫
-
-sou Ninja para as coisas🥷
-
-
-![https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExeGU4cWRzdHQzbGU4Y3VzMDNwbXEwODZuemFtcm9ndzI2bHE2dHBmeCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/MxHkbVTsmkPTEebefb/giphy.gif]
- 
+!{https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExZHRsN29yd3NrYzJwcWc2azBsdGlqZWVsb2J4ZG83ODZtY3ppMnV1ayZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/l4Ki93SAmKFgJnObS/giphy.gif}
