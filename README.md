@@ -1,2 +1,19 @@
-https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExZHRsN29yd3NrYzJwcWc2azBsdGlqZWVsb2J4ZG83ODZtY3ppMnV1ayZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/l4Ki93SAmKFgJnObS/giphy.gif]
-![Texto alternativo](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExZHRsN29yd3NrYzJwcWc2azBsdGlqZWVsb2J4ZG83ODZtY3ppMnV1ayZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/l4Ki93SAmKFgJnObS/giphy.gif
+eu sou o augustto  
+
+
+🎓 Aluno Dedicado (ou quase)
+
+
+* 📚 Curso **[eletrotecnica]** porque errar é humano.
+
+
+* ☕ Movido a chá, prazos apertados e desespero.
+
+
+* 🧠 Especialista em deixar tudo para a última hora.
+
+
+* 🛠️ Tentando programar antes que a IA me substitua.
+
+
+![](https://c.tenor.com/7l0jZbo5vaUAAAAd/tenor.gif)
